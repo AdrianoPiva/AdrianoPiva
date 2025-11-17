@@ -44,4 +44,4 @@
 ---
 
 ## 🔗 LinkedIn
-👉 https://www.linkedin.com/in/adriano-piva-84b3432ba
+👉 [https://www.linkedin.com/in/adriano-piva-84b3432ba](https://www.linkedin.com/in/adrianopiva/)
